@@ -1,1 +1,1 @@
-When ever I'm awake I play OSU
+When ever I'm awake I play OSU!
